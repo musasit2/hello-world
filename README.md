@@ -1,2 +1,2 @@
-ư# hello-world
-we have change with shit dog putang ina mo boboka!!!
+﻿ư# hello-world
+ok fine wat ever :V
